@@ -1,1 +1,0 @@
-Köksalar mühendislik resmi sitesii
